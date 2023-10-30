@@ -1,3 +1,12 @@
-eu sou joão gabriel, mas pode me chamar só de joão, tenho 14 anos, do colégio cívico militar "Helena Viana Sundin".
-gosto de aventuras anormais de jojo, coisas militares, desenhar e memes.
-também tenho uma conta no scratch e não me julgue, mas eu sou um furry, e só porque eu desenho furries.
+- ## eu sou joão gabriel
+ mas pode me chamar só de joão.
+
+- tenho 14 anos, do colégio cívico militar "Helena Viana Sundin".
+  
+- gosto de jogar roblox, desenhar furries, assistir jojo, e eu estou pensando em uma série sobre, advinha... furries.
+
+- se quiser me adicionar no roblox meu nick é joao_taro212
+
+![](https://media.tenor.com/qYpm6fVLlNIAAAAi/mauzymice-mauzy.gif)
+
+- meu número do zap é 8413-1020
