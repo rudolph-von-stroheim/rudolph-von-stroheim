@@ -7,6 +7,9 @@
 
 - se quiser me adicionar no roblox meu nick é joao_taro212
 
-![](https://media.tenor.com/qYpm6fVLlNIAAAAi/mauzymice-mauzy.gif)
+- minha conta no scratch.mit.edu é joao-nanba-123
 
 - meu número do zap é 8413-1020
+
+![](https://media.tenor.com/qYpm6fVLlNIAAAAi/mauzymice-mauzy.gif)
+
