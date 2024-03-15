@@ -7,7 +7,7 @@
 
 - se quiser me adicionar no roblox meu nick é joao_taro212
 
-- minha conta no scratch.mit.edu é joao-nanba-123
+- minha conta no scratch.mit.edu é joao-nanba-123 (ou milivolt)
 
 - meu número do zap é 8413-1020
 
