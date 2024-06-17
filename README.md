@@ -3,7 +3,7 @@
 
 - tenho 14 anos, do colégio cívico militar "Helena Viana Sundin".
   
-- gosto de jogar roblox, desenhar furries, assistir jojo, e eu estou pensando em uma série sobre, advinha... furries.
+- gosto de jogar roblox, desenhar furries e assistir jojo
 
 - se quiser me adicionar no roblox meu nick é joao_taro212
 
