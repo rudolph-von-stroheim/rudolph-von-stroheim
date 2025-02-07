@@ -1,7 +1,7 @@
 - ## eu sou joão gabriel
  mas pode me chamar só de joão.
 
-- tenho 14 anos, do colégio cívico militar "Helena Viana Sundin".
+- tenho 15 anos, do colégio cívico militar "Helena Viana Sundin".
   
 - gosto de jogar roblox, desenhar furries e assistir jojo
 
